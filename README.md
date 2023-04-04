@@ -1,0 +1,1 @@
+# Fantastik-bilgi-i-lem-makinesi
